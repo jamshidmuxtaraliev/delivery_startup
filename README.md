@@ -2,5 +2,5 @@
 
 Bismillah bilan boshladik
 
-![Group 1 (1)](https://github.com/jamshidmuxtaraliev/delivery_startup/assets/97395009/afd060fd-b987-4446-9167-2f1387aceb10)
+![Group 2](https://github.com/jamshidmuxtaraliev/delivery_startup/assets/97395009/a61fd181-be10-4387-ae13-a2068178e4c7)
 
